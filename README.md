@@ -12,3 +12,5 @@ Many people followed Jesus, but others, especially some religious leaders, were 
 Three days after His death, Jesus rose from the dead—an event called the Resurrection. He appeared to His followers and then ascended to heaven, promising to return one day.
 
 Jesus is worshiped as the Savior, Messiah, and Lord by Christians. His life and message have influenced billions of people and shaped the history and values of the world
+![26cecf234b8bde034afe247cae1e48db](https://github.com/user-attachments/assets/ce4cb381-951e-405a-bf9e-4443f03bfa3d)
+
